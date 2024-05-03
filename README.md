@@ -1,0 +1,1 @@
+I have just started to establish my self in the world of producing music, my genre is unique and is a new sound which I am call DD Diversym Dance Diversym comes from Diver sum which means different in Latin. It Is Fast paced 145 bmp to 150 with a bouncy playful feel inclues vocals with serious twists and turns to keep the story of the track rolling.
